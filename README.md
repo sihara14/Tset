@@ -1,3 +1,5 @@
+<p><meta http-equiv="refresh" content="5;url=https://github.com/sihara14/Tset/tree/0727">5초 후sihara14/Tset로 이동.</p>
+
 # 2022년 07월 27일  
 
 <html>
